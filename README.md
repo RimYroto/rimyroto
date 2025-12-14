@@ -1,2 +1,1 @@
-Владислав Забабурин.
-Это я.
+Always in the purcuit of the best
