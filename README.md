@@ -1,1 +1,1 @@
-Always in the purcuit of the best
+Always in the pursuit of the best
